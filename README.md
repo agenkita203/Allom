@@ -1,0 +1,2 @@
+# Allom
+Teruslah belajar
